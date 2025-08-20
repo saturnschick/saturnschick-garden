@@ -3,35 +3,16 @@ layout: page
 title: About
 permalink: /about
 ---
+# 🌱 About Me
 
-# 🌙 About Me
+This is **Sheng** 🍓  
 
-## Welcome to my corner of the universe ✨
+But for the purpose of this garden, I'm called **saturnschick** 🪐  
 
-Welcome to my little corner of the universe. This is where I share everything I love, everything that sparks my interest, updates on my life, my thoughts, and basically whatever comes to mind.  
+I'm a Filipina from **Davao City, Philippines**, and I recently migrated to **Poland**. I'm happily married to a wonderful Polish man, living and loving life by his side, while also embracing my European dream.  
 
-Expect lots of:  
-- 📸 Photos  
-- 🎵 Music I’m currently obsessed with  
-- 💄 Skincare tips & all things girly  
-- 🔮 Plenty of witchy vibes  
+Most of my time here in Poland is spent enjoying my quiet, dream life—learning both childhood and new recipes, photographing the views of my neighborhood, endlessly scrolling through social media, and pursuing my various interests such as **astrology, esoterics, history, and medicine**.  
 
----
+I decided to plant this **digital garden** as a productive outlet for my thoughts and curiosities.  
 
-## My little first project 🌱
-
-This space won’t be perfect—it’s my very first *project*, my initial step into creativity, and a way to channel the storms in my mind.  
-
----
-
-## Scroll if you want, peek if you like 👀
-
-If some things here don’t quite make sense to you, feel free to scroll on by! This isn’t necessarily for you, nor written with you in mind.  
-
-But I’m offering you a glimpse—a peek into my world. It might not always make sense, but it makes perfect sense to me, and that’s all that matters because this is *my page*.
-
----
-
-## I am the hero here 😎
-
-Hahaha! Just kidding… or am I? 😉
+So, come on in—**welcome to my garden** 🌸
